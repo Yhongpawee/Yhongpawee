@@ -1,5 +1,5 @@
-# Hi, I'm Yhong👋🍫🌿🐋💌🎮
-Here is my portfolio for practicing and sharpening my skills in data analysis, data science, and related fields. 
+# Hi, I'm Yhong👋✨🍫🌿🐋💌🎮
+Here is my portfolio for practicing and sharpening my skills in data analysis, data science, and related fields.📊🎨😍📄
 
 
 
